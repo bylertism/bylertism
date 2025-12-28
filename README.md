@@ -1,15 +1,15 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=party-killers&color=FFAD07&label=⠀⠀⠀serendipitous⠀⠀★⠀⠀⠀⠀)
+![](https://komarev.com/ghpvc/?username=party-killers&color=627B88&label=⠀⠀⠀serendipitous⠀⠀★⠀⠀⠀⠀)
 ⠀\
 ⠀\
 ⠀\
-![](https://files.catbox.moe/d8vf7q.png)
+![](https://files.catbox.moe/rz8ooc.png)
 ⠀\
 ⠀\
 ⠀\
   <sub>$\text{\color{#FFFFFF}Andrew (preferred) or Mike. He/They}$\
-  $\text{\color{#FFFFFFF}Fictionkin 𓈒 Unlabeled.⠀Fifteen}$
+  $\text{\color{#FFFFFFF}Fictionkin 𓈒⠀Unlabeled.⠀Fifteen}$
 
   <sub>$\text{\color{#FFFFFF}I encourage c+h! Sit me with whenever. You don't have to ask.}$\
   $\text{\color{#FFFFFF}I'm mostly offtab, so whispers are also preferred.}$\
