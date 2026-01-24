@@ -16,7 +16,7 @@ $\text{\color{#262C42}(⠀IDs⠀)}$   [01](https://foxhole-court.fandom.com/
 $\text{\color{#262C42} 𓏵  as well as u͟n͟l͟i͟s͟t͟e͟d͟}$\
 \
 $\text{\color{#313757}c+h encouraged ◟  always w2i}$\
-$\text{\color{#313757}sign my}$ [atabook](https://andreil.atabook.org/)\
+$\text{\color{#313757}sign my}$ [atabook](https://orbitalduo.atabook.org/)\
 \
 $\text{\color{#6F8FA4} ⠀ —⠀⠀˙˙⠀⠀⠀౿⠀⠀，}$\
  \
