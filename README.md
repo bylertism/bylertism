@@ -4,6 +4,9 @@
 \
 \
 \
+![](https://files.catbox.moe/2inrlk.png)
+\
+\
 \
 $\text{\color{#303A55}a͟n͟d͟r͟e͟w͟}$\
 $\text{\color{#31355A}he  ノ  him}$\
